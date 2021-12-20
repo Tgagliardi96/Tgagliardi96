@@ -5,7 +5,7 @@
 >📈 The analysis of data is what I'm continuing to study\
 >🖥️ Coding is my new challenge on this field\
 >🤝 Cooperation to projects is what I'm looking for to expand my knowledge of coding\
->👀 I'm always actively look for a job
+>👀 I'm always actively looking for a job
 
 **Reach out**
 >📧 tommasogagliardi.pv@gmail.com\
