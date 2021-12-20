@@ -8,5 +8,5 @@
 >👀 I'm always actively look for a job
 
 **Reach out**
->📧 tommasogagliardi.pv@gmail.com
+>📧 tommasogagliardi.pv@gmail.com\
 > Tableau https://public.tableau.com/app/profile/tommaso8535
