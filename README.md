@@ -1,6 +1,6 @@
 # Tommaso Gagliardi
 
-**Hello Github! My name is Tommaso Gagliardi. Thank you for being on my profile!**
+**My name is Tommaso Gagliardi. Thank you for being on my profile!**
 
 >📈 The analysis of data is what I'm continuing to study\
 >🖥️ Coding is my new challenge on this field\
