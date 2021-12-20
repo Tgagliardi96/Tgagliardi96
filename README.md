@@ -1,4 +1,4 @@
-# TommasoGagliardi
+# Tommaso Gagliardi
 Config files for my GitHub profile.
 ** Hello Github! My name is Tommaso Gagliardi. Thank you for being on my profile! **
 
