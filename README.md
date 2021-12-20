@@ -7,5 +7,5 @@
 🤝 Cooperation to projects is what I'm looking for to expand my knowledge of coding
 👀 I'm always actively look for a job
 
-** Reach out **
+**Reach out**
 📧 tommasogagliardi.pv@gmail.com
