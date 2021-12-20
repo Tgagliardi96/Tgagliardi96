@@ -7,7 +7,7 @@
 >🤝 Cooperation to projects is what I'm looking for to expand my knowledge of coding\
 >👀 I'm always actively looking for a job
 
-**Reach out**
+**Links to my profiles**
 >📧 tommasogagliardi.pv@gmail.com\
 > Tableau https://public.tableau.com/app/profile/tommaso8535 \
 > Linkedin https://www.linkedin.com/in/tommaso-gagliardi-65b892218
