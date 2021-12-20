@@ -10,4 +10,4 @@
 **Reach out**
 >📧 tommasogagliardi.pv@gmail.com\
 > Tableau https://public.tableau.com/app/profile/tommaso8535 \
-> Linkedin https://www.linkedin.com/in/tommaso-gagliardi-65b892218/
+> Linkedin https://www.linkedin.com/in/tommaso-gagliardi-65b892218
