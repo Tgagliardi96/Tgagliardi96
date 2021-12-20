@@ -13,4 +13,3 @@
 >Linkedin https://www.linkedin.com/in/tommaso-gagliardi-65b892218/
 
 **Links to my profile**
->[![Linkedin](https://i.stack.imgur.com/gVE0j.png) LinkedIn] https://www.linkedin.com/in/tommaso-gagliardi-65b892218/
